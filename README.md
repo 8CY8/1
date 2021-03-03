@@ -18,7 +18,7 @@ tbkl.xyz<br>
 
 专人不断更新，提供最新初遇下载地址<br> 
 
-请收藏保存本网址：github.com/8CY<br> 
+请收藏保存本网址：github.com/8CY8<br> 
 
 # 平台规则
 
